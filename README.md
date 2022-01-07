@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 
 📫 You can be reached at vipulchoudhary1995@gmail.com and on Linkedin https://www.linkedin.com/in/vipul-chodhari/
 
-🎧 I love singing and listening to music and my favorite singers are Udit Narayan and Abhijeet Bhattacharya.
+🎧 I love singing and listening to music and my favorite singers are Udit Narayan and Abhijeet Bhattacharya
 
 😎 Have a look at my Portfolio
 
