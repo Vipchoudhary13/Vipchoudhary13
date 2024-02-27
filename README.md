@@ -17,7 +17,7 @@
 
 - 🎧 I love singing and listening to music and my favorite singers are Udit Narayan and Abhijeet Bhattacharya
 
-- 😎 Have a look at my [Portfolio](https://vipulportfolio.vercel.app/)
+- 😎 Have a look at my [Portfolio](https://vipul-alpha.vercel.app/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
